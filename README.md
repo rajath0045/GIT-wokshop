@@ -6,3 +6,4 @@
 *Strong problem-solving, teamwork, and analytical skills
 *Committed to applying technical knowledge to solve real-world challenges
 *My hobbies are cricket,badminton and swimming
+*I my favourite food is pasta
